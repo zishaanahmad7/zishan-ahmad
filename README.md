@@ -4,9 +4,11 @@
 - 💞️ I’m looking to collaborate on .Net Projects...
 - 📫 Reach me at 
 
-- 1) Instagram: @zishaan_ahmad
-- 2) Facebook: fb.com/xishan01
-- 3) Email: xishanahmad01@gmail.com
+- 1) LinkedIn: https://pk.linkedin.com/in/zishaanahmad7
+- 2) Instagram: https://instagram.com/zishaan_ahmad
+- 3) Facebook: https://www.facebook.com/xishan01
 - 4) Discord: CaptnMF#4181
+- 5) Email: xishanahmad01@gmail.com
+
 
 
